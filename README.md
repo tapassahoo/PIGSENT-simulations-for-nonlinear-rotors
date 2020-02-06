@@ -1,1 +1,1 @@
-Please check in Wiki tab
+Please check the Wiki tab
